@@ -1,0 +1,1 @@
+![](navitas-01.jpg)
