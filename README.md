@@ -1,1 +1,1 @@
-![](navitas-01.jpg)
+![](certificate.jpg)
